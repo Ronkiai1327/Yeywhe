@@ -42,3 +42,5 @@ Kkksks
 Oaois
 Ldkdk
 Owjeu
+Jdjjs
+Owiwi
