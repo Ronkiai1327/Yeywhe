@@ -52,3 +52,5 @@ Oekeo
 Iekei
 Wlkwwk
 Wlwkj
+Oeke
+Kekej
