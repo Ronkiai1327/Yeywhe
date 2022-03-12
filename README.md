@@ -239,3 +239,5 @@ Ofkfi
 Fkksle
 Kfkfof
 Fnlwlw
+Ofofo
+Fkldle
