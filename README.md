@@ -270,3 +270,5 @@ Dkdkod
 Dndkdkd
 Fjdkod
 Dnksks
+Ktkkt
+Fkorke
