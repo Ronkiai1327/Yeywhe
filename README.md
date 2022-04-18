@@ -312,3 +312,5 @@ Kfor
 Kcidid
 Lfoof
 Fjkkd
+Kgkof
+Mgkrk
