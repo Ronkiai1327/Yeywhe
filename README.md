@@ -392,3 +392,5 @@ Kfor
 FolderType ow
 Kflf
 Fkkd
+Krkr
+Fkdk 
