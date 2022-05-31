@@ -398,5 +398,7 @@ Kr
 Rkrjjr
 Krktk
 Fnfnjrjr
+Mrmr
+Nrnroe
 نغنغ
 غنغن
