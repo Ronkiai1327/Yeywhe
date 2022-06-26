@@ -446,3 +446,5 @@ Jjggt
 Dmdndo
 Rmdkkd
 Dnjb
+Krkrk
+Rnbr
