@@ -642,3 +642,5 @@ Smsjsjis
 Smsksj
 Hshsjeue
 Ekkeej
+Khwus
+Sksj
